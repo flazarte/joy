@@ -1,2 +1,2 @@
 # joy
-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
+Some repositories is in private mode!
